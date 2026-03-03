@@ -1,0 +1,1 @@
+reference for design: https://dribbble.com/shots/23625820-Plans-and-Pricing-Page
